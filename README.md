@@ -1,4 +1,4 @@
-- 你好，我是@CommandoCrafter4017
+- Hello, my name @CommandoCrafter4017
 - Currently working on a few roblox games.
 - To reach me for buisness purposes, please use my email: crafter4017@gmail.com
-- To reach me for other purposes, please use my discord: RED Engineer#3150.
+- To reach me for other purposes, please use my discord: RED Engineer#3150
